@@ -1,1 +1,1 @@
-[Twitter](https://twitter.com/palihabitiya)
+[Twitter profile](https://twitter.com/palihabitiya)
