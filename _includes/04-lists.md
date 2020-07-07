@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Bitcoin
+2. Beef
+3. Barbells
